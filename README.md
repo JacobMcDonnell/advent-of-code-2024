@@ -8,7 +8,7 @@ familiarize myself with.
 
 - Day 1: Two Gold Stars
 
-- Day 2:
+- Day 2: Two Gold Stars
 
 - Day 3:
 
