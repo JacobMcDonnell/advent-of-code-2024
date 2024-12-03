@@ -10,7 +10,7 @@ familiarize myself with.
 
 - Day 2: Two Gold Stars
 
-- Day 3:
+- Day 3: Two Gold Stars
 
 - Day 4:
 
